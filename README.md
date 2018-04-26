@@ -2,13 +2,14 @@
 
 For this workshop, you will utilize two types of resources in advance (1) books, and (2) blog posts.
 
-![screen shot 2017-09-08 at 1 35 52 pm](https://user-images.githubusercontent.com/18661767/30223910-b3c3e044-949a-11e7-92cf-97fae1787765.png)
+![screen shot 2017-09-08 at 1 38 09 pm](https://user-images.githubusercontent.com/18661767/30223984-0080726c-949b-11e7-990e-2a36f9e2d847.png)
 **Book Reading (30 minutes)**
 
 Start by reading, Part IV Chapter 12 "Process Oriented Meetings" in "High Output Management" by Andrew Grove. Grove is the former CEO of Intel.  
 
 These are pages 72-79 scanned [here](https://www.dropbox.com/s/e43ssgk1e35c5ij/High%20Output%20Management%20-%20One-on-Ones.pdf?dl=0).
 
+![screen shot 2017-09-08 at 1 38 09 pm](https://user-images.githubusercontent.com/18661767/30223984-0080726c-949b-11e7-990e-2a36f9e2d847.png)
 **Blog Posts (30 minutes)**
 
 Once you've completed the book reading, dive into the two blog posts below. 
