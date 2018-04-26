@@ -18,6 +18,12 @@ Once you've completed the book reading, dive into the two blog posts below.
 
 [Quora response by Michael Wolfe](https://www.quora.com/What-are-some-good-tips-for-1-1s-with-your-employees-Whats-the-best-way-to-give-them-both-positive-and-negative-feedback/answer/Michael-Wolfe) 
 
+[Bored People Quit by Michael Lopp](http://randsinrepose.com/archives/bored-people-quit/)* Extra Credit
+
+[101 Questions to Ask in One on Ones by Jason Evanish](https://jasonevanish.com/2014/05/29/101-questions-to-ask-in-1-on-1s/)* Extra Credit
+
+[Sample Questions from Mollie Khine, Flatiron's Manager of Educational Coaching](https://docs.google.com/document/d/1SQkz1XcqEAfP4ayOyZ-TrvIJZy7mYCud5dbOqCnGf3M/edit)* Extra Credit
+
 
 **Ask yourself the following questions as you are reading:**
 
