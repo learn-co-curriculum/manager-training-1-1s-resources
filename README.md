@@ -14,7 +14,7 @@ These are pages 72-79 scanned [here](https://www.dropbox.com/s/e43ssgk1e35c5ij/H
 
 Once you've completed the book reading, dive into the two blog posts below. 
 
-[A Good Place to Work by Ben Horowitz](https://a16z.com/2012/08/18/a-good-place-to-work/)
+["A Good Place to Work" by Ben Horowitz](https://a16z.com/2012/08/18/a-good-place-to-work/)
 
 [Quora response by Michael Wolfe](https://www.quora.com/What-are-some-good-tips-for-1-1s-with-your-employees-Whats-the-best-way-to-give-them-both-positive-and-negative-feedback/answer/Michael-Wolfe) 
 
