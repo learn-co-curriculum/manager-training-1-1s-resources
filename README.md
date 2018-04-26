@@ -9,7 +9,6 @@ Start by reading, Part IV Chapter 12 "Process Oriented Meetings" in "High Output
 
 These are pages 72-79 scanned [here](https://www.dropbox.com/s/e43ssgk1e35c5ij/High%20Output%20Management%20-%20One-on-Ones.pdf?dl=0).
 
-<p class='util--hide'>View <a href='https://learn.co/lessons/manager-training-delegation-resources'>Delegation Workshop Resources</a> on Learn.co and start learning to code for free.</p>
 **Blog Posts (30 minutes)**
 
 Once you've completed the book reading, dive into the two blog posts below. 
